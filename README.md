@@ -1,1 +1,2 @@
 Shinji Nobuhara
+nobuhars@oregonstate.edu
